@@ -1,1 +1,1 @@
-# jak-zostac-inynierem
+# jak-zostac-inzynierem
