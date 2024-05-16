@@ -1,1 +1,1 @@
-# jak-zosta-in-ynierem
+# jak-zostac-inynierem
